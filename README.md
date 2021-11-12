@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DungeonMastr
 - 👀 I’m interested in Skateboarding
 - 🌱 I’m currently learning in RBS for bachelor of IT leadership
-- 💞️ I’m looking to collaborate on business
+- 💞️ I’m looking for collaboration
 - 📫 How to reach me 
   Gmail: aolins386@gmail.com
   Tel.num.: +37126031585
